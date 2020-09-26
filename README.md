@@ -39,7 +39,9 @@ Finish just like this you can make this system simply sorry for my bad english b
 
 ## Here is Some Pictures
 
-https://imgur.com/a/rpVTxfH
+LINK : https://imgur.com/a/rpVTxfH
 
 
-Here Is PasteBin Link [ https://pastebin.com/EK7KUnkj ]
+## Here Is PasteBin 
+
+Link [ https://pastebin.com/EK7KUnkj ]
